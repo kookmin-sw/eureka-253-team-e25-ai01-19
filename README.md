@@ -21,7 +21,7 @@ We are a team driven by relentless passion and a spirit of challenge in AI and a
 
 ***
 
-## 2️⃣ 공통된 관심사 : 여행, 백엔드, 인공지능
+## 2️⃣ 공통된 관심사 : 백엔드, 인공지능
 
 ***
 
